@@ -4,7 +4,7 @@
 
 
 ```
-<strong>I FUCKED UP YOUR README</strong>
+<strong>banged everyones mams</strong>
 ```
 
 ## heading 2
